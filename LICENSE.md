@@ -1,4 +1,4 @@
-# 
+# updated NFT Sniper for opensea sniper bot | volume-analysis & auto-sell is the best opensea sniper bot, featuring volume-analysis and auto-sell. Fast, smart, and optimized for NFT
 
 
 
